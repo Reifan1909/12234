@@ -1,0 +1,1 @@
+# tech_smync-man2-kota-payakumbuh
